@@ -20,7 +20,7 @@ Asabeneh/30-Days-Of-React: 30 Days c more c c c of React challenge is a step by 
 
 
 
-yelhanka 
+yelhanka ok tc thinnava eu ec me going gooty inka 30 minutes lo
 
 ![Alternative text here](Screenshot_20260806-142722.Chrome.png)
 
