@@ -20,6 +20,6 @@ Asabeneh/30-Days-Of-React: 30 Days c more c c c of React challenge is a step by 
 
 
 7
-
+ok tc eu MSG kuda cheynu GitHub lo thinnava may be nenu 5mr varachu i will u
 ![Alternative text here](Screenshot_20260806-142722.Chrome.png)
 
