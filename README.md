@@ -24,6 +24,7 @@ Asabeneh/30-Days-Of-React: 30 Days c more c c c of React challenge is a step by 
 8
 
 c
+Same 8 eu tc 7
 
 ![Alternative text here](Screenshot_20260806-142722.Chrome.png)
 
